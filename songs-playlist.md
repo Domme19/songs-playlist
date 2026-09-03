@@ -47,7 +47,13 @@
 * "The 6th Sense" by Common
 * "Champion" by The Roots
 * "Holy Are You" by Rakim
-* "Rage Is Back (Freestyle)" by Black Thought \& J.PERIOD                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               
+* "Rage Is Back (Freestyle)" by Black Thought \& J.
+* "One Love" by Nas (featuring Q-Tip)
+
+
+
+
+
 
 
 **Neo-Soul \& Jazz Rap Vibes**
@@ -65,7 +71,7 @@
 * "Composure" by Nas (featuring Hit-Boy)
 * "History" by Jay-Z (featuring Tony Williams)
 * "Celebrate" by Common
-* "The Melody" by The Left (produced by Apollo Brown) 
+* "The Melody" by The Left (produced by Apollo Brown)
 * "Gumbo" by Jay Rock (featuring J. Cole)
 * "Love Me Tomorrow" by Nas
 * "Lavender" by Apollo Brown
@@ -73,10 +79,12 @@
 * "The Narrow Path" by Blu \& Exile
 * "The World Is..." by Blu \& Exile
 * "Act Too (The Love of My Life)" by The Roots (featuring Common)
-* "Get Light" by Nas   
+* "Get Light" by Nas
 * "Jodeci Member" by Nas
 * "Reminisce" by Nas
-* "Speechless, Pt. 2" by Nas under                                                                                                       
+* "Speechless, Pt. 2" by Nas under
+* "Own Appeal" by Oddisee
+* "Fever" by Nas
 
 
 
@@ -107,7 +115,7 @@
 * "Peaches and Herb" by Ransom \& Nicholas Craven
 * "Ain't Nothing Move" by Grafh (featuring 38 Spesh)
 * "Summer '26" by Benny the Butcher
-* "Different" by Statik Selektah (featuring Cormega) 
+* "Different" by Statik Selektah (featuring Cormega)
 * "Heavy Price to Pay (Chef's Kiss)" by Fat Joe
 * "Prove Me Wrong" by Apollo Brown \& Che' Noir
 * "Shadowboxin'" by GZA (featuring Method Man)

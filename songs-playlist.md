@@ -1,5 +1,6 @@
 **The New Renaissance playlist:**
 
+* "Good Morning" by Black Thought (featuring Pusha T, Killer Mike, and Swizz Beatz) ----> Shared
 * "Pressure" by Lupe Fiasco (featuring Jay-Z)
 * "Roc Boys (And The Winner Is)..." by Jay-Z
 * Lupe Fiasco - Atomic Misphilosophy
@@ -9,9 +10,8 @@
 * "Already Home" by Jay-Z (featuring Kid Cudi)
 * "Renaissance Man" by Jay Electronica
 * "Everything" by Nas (featuring Kanye West \& The-Dream)
-* "Hip-Hop Saved My Life" by Lupe Fiasco (featuring Nikki Jean)
+* "Hip-Hop Saved My Life" by Lupe Fiasco (featuring Nikki Jean) 
 * "Ghetto Boys and Girls (Fuel Interlude)" by Black Thought
-* "Good Morning" by Black Thought (featuring Pusha T, Killer Mike, and Swizz Beatz)
 * "Superstar" by Lupe Fiasco (featuring Matthew Santos)
 * "The Cure" by Nas
 * "Adam and Eve" by Nas (featuring The-Dream)

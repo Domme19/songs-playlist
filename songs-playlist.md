@@ -65,6 +65,8 @@
 * Place "How to Hold a Choppa" by Black Thought
 * "3rd Childhood" by Nas
 * "Rare" by Nas (produced by Hit-Boy)
+* "Making a Murderer" by Black Thought (featuring Styles P, produced by 9th Wonder)
+* Bicury by Daylyt
 
 
 
@@ -101,6 +103,11 @@
 * "Speechless, Pt. 2" by Nas under
 * "Own Appeal" by Oddisee
 * "Fever" by Nas
+* "The Right to Love Us" by Talib Kweli \& Madlib (featuring Mac Miller)
+* Take It Easy Freestyle" by A$AP Rocky (featuring A$AP Ferg)
+* "Cleo" by Rapsody
+* "Clouds" by J. Cole
+* "Sitting with My Thoughts" by Nas
 
 
 
@@ -143,4 +150,9 @@
 * "Lots of Pockets" by Awon \& The Other Guys (feat. DJ Eveready)
 * "Crumbs" by Blu \& Exile (feat. Rome Streetz \& ICECOLDBISHOP)
 * "Drug Free School Zone" by Skyzoo
+* "Wu-Tang Cream Team Line-Up" by Funkmaster Flex (featuring Raekwon, Inspectah Deck, Method Man, Killa Sin, \& Harlem Hoodz)
+* "Now Is the Time" by Rakim (featuring Hus Kingpin, produced by Big Ghost LTD)
+* "Blood in the Wifi" by J. Arrr \& BP Infinite (featuring Ransom)
+* "Purple" by Nas
+* "Da Heavies" by Raekwon (featuring Ghostface Killah and CJ Mac)
 

@@ -49,6 +49,22 @@
 * "Holy Are You" by Rakim
 * "Rage Is Back (Freestyle)" by Black Thought \& J.
 * "One Love" by Nas (featuring Q-Tip)
+* "My Life Is Real" by Nas
+* "This Man" by Common \& Pete Rock
+* "Ohh Oh" by Lupe Fiasco
+* "Now and Then" by Common \& Pete Rock
+* "Slow It Down" by Nas
+* "100 Chicagos" by Lupe Fiasco
+* "Hip Hop" by Mos Def
+* "Speed Law" by Mos Def
+* "Do It Now" by Mos Def (featuring Busta Rhymes)
+* "Know That" by Mos Def (featuring Talib Kweli)
+* "Dostoyevsky" by Black Thought (featuring Rapsody)
+* "It's Time" by Nas \& DJ Premier
+* "Old School Rules" by DANGERDOOM (MF DOOM \& Danger Mouse) featuring Talib Kweli
+* Place "How to Hold a Choppa" by Black Thought
+* "3rd Childhood" by Nas
+* "Rare" by Nas (produced by Hit-Boy)
 
 
 
@@ -120,4 +136,11 @@
 * "Prove Me Wrong" by Apollo Brown \& Che' Noir
 * "Shadowboxin'" by GZA (featuring Method Man)
 * "Hard Living" by Statik Selektah (featuring Dave East \& Ransom)
+* "A Couple Dollars" by Apollo Brown \& Skyzoo
+* Nobody Safe by Nas
+* "Space Ho's" by DANGERDOOM (MF DOOM \& Danger Mouse)
+* "Statistics" by The Left (featuring Journalist, produced by Apollo Brown)
+* "Lots of Pockets" by Awon \& The Other Guys (feat. DJ Eveready)
+* "Crumbs" by Blu \& Exile (feat. Rome Streetz \& ICECOLDBISHOP)
+* "Drug Free School Zone" by Skyzoo
 
